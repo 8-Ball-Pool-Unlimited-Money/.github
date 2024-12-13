@@ -6,6 +6,9 @@
 
 > Tải Xuống: 👏 https://modhello.com/8-ball-pool/
 
+![9166C52KbmL](https://github.com/user-attachments/assets/7d62bb88-e06b-46f6-a0cc-d41fedbbed44)
+
+
 ## Các Tính Năng Nổi Bật Của 8 Ball Pool  
 
 Trò chơi sở hữu nhiều tính năng phong phú để giữ chân người chơi:  
@@ -28,6 +31,8 @@ Gameplay của **8 Ball Pool Android game** là sự pha trộn giữa chiến t
 - **Shot Power Control**: Điều chỉnh lực đánh để định vị bi một cách tối ưu.  
 - **Turn-Based Play**: Người chơi thay phiên, tạo cơ hội cho mọi người lập chiến lược.  
 - **Tactical Spins**: Áp dụng xoáy trên bi để đánh lừa phòng thủ của đối thủ.  
+
+![cach-choi-bida-8-ball-pool-1](https://github.com/user-attachments/assets/58feec20-33a1-49f9-af64-84e0c1a591a2)
 
 ## Đồ Họa Và Âm Thanh Của 8 Ball Pool  
 
